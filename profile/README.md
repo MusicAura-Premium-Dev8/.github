@@ -7,7 +7,7 @@ Esta nueva versión premium viene cargada de mejoras, una interfaz moderna y fun
 
 ## + Descargar - [Spotify Premium (MX)](https://shorturl.at/FcPoX)
 
-![image](https://github.com/user-attachments/assets/42b4e754-6ef1-429a-ab56-9f6906b3aa7a)
+![image](https://github.com/user-attachments/assets/13a603f8-7645-48e8-917f-7a6b87bcb8af)
 
 
 ## 🌟 Interfaz Moderna y Amigable
